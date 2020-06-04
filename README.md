@@ -13,6 +13,10 @@
 
 ![merybeau](красиваямэри.jpg)
 
+![lemma](каклемма.jpg)
+
+![marylemm](леммамы.jpg)
+
 ![know](ксюшазнает.jpg)
 
 ![maryknow](мэризнает.jpg)
